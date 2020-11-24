@@ -1,0 +1,2 @@
+# yeniyim-
+öğrenmeye geldim
